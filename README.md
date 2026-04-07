@@ -1,8 +1,11 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=7rpgwdv9mcmplpyjchne0fqm3&cover_image=false&theme=default&show_offline=false&background_color=f4f1a4&interchange=false&profanity=false&bar_color=df86c3&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=7rpgwdv9mcmplpyjchne0fqm3&redirect=true)
-
-Me and @Jabber in another universe
-
-<img width="448" height="557" alt="__cthoni__jabber-removebg-preview" src="https://github.com/user-attachments/assets/31f67394-e05b-424c-a6cd-2456a91a7386" />
+![tumblr_12ad01c7f5a99c5f39adda8a866dcdb0_f514ee53_400](https://github.com/user-attachments/assets/0c347928-00db-4216-85d5-fcf6be60bcbb)
 
 
-꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
+Me and @Jabber in another universe ![bdf7c3badfeecc8d8b59659fc501cd9ecb5559e1](https://github.com/user-attachments/assets/5ace75c8-1cda-495f-822f-b482268ace0d)
+
+
+<img width="446" height="559" alt="Ace___Luffy-removebg-preview" src="https://github.com/user-attachments/assets/0a7b52b1-38b2-4c43-a6be-bff4d3f5aca3" />
+
+
+
+![tumblr_12ad01c7f5a99c5f39adda8a866dcdb0_f514ee53_400](https://github.com/user-attachments/assets/0e866fe5-3f94-4204-a123-36a3244e117a)
